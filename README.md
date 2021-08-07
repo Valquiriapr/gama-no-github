@@ -1,0 +1,1 @@
+Até o momento estou conseguindo realizar os comandos e estou gostando do curso.
